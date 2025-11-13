@@ -2,8 +2,7 @@
 - 👀 I’m interested in databases and BI
 - 🌱 I’m currently learning license in business computing
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me wassimkhalfewi@gmail.com
-- 😄 Pronouns: ...
+- 📫 How to reach me wassimkhalfewi@gmail.com / LinkedIn : www.linkedin.com/in/khalfaoui-wassim-w2002
 - ⚡ Fun fact: stay smile and cry ..
 
 <!---
